@@ -1,1 +1,1 @@
-![isso é Brasil](content/hu3.png)
+${\displaystyle e^{i\pi }+1=0}$
